@@ -1,1 +1,1 @@
-# DScover_Project-H group
+# Hello~ we are DScover_H group
